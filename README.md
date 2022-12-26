@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ChannelJuanNews
+- 👀 I’m interested in AI & Machine Learning
+- 📫 How to reach me juan@cvfuegofc.com
